@@ -3,5 +3,5 @@ How to write AiBook
 Me alone 
 
 in my Bedroom
-
+and im bored
 
